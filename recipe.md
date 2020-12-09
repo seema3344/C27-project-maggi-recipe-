@@ -1,0 +1,1 @@
+Take a kadhai and put 2 cups of water . Leave it to boil . Break the maggi bricks and put it in the kadhai . After that put the maggi masala and let it cook for 2 min .
